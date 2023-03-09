@@ -1,2 +1,2 @@
-# self_study
-개인공부
+# just do it
+
